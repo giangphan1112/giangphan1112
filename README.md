@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @giangphan1112
+- 👀 I’m interested in offering interesting IT job.
+- 🌱 I’m currently learning IT knowledge. 
+- 💞️ I’m looking to the ones who want to find new job opportunity.
+- 📫 How to reach me 0902491772
